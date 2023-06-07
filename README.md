@@ -13,3 +13,4 @@
 - ceu ftw
 - GCYS in 3-5 business days.
 - How many red arrows and circles did you use? Igblon: yes
+- Not clickbait.
