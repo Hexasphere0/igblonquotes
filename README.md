@@ -8,3 +8,8 @@
 - 1.19? WDYM? 1.12 is the latest version.
 - gti = best version (real)
 - GTNH is the best version. Each machine does not take 10 hours to craft and it is super beginner friendly.
+- But... 1.12.2 is losing support. And the textures on 1.14+ are INFINITELY better. Not to mention 1.16 and 1.18 have loads of new and interesting features you can integrate into GT somehow. I'm sure you can add a ton to ore generation with 1.18's extended world height, which goes from y-64 to y320. And 1.16 has loads of epic nether features like netherite, which has a fire-immune property that you can add for GT materials with a high melting point like iridium. Also I predominantly play 1.16 and 1.18 packs, along with many others I believe, so if you support the newer versions you will have more downloads. TLDR please update because 1.12.2 is getting outdated.
+- They planned on spending the next few hours absolutely gaming.
+- ceu ftw
+- GCYS in 3-5 business days.
+- How many red arrows and circles did you use? Igblon: yes
